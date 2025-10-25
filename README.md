@@ -4,6 +4,24 @@
 
 小红书有本事来github封号 嘲讽脸
 
+本人前公司：某总部base杭州的企业，出海到澳洲，公司名中英文都是H开头，安防领域。
+文中提到的HR，英文名J开头。并且曾经多次在公开群里，公开发布招聘无薪实习的实习生。
+
+<img width="589" height="597" alt="image" src="https://github.com/user-attachments/assets/c30ed242-ed65-4a81-afab-823265f4af2e" />
+
+99 【澳洲留子来！XXX市场部/技术支持实习 - 小U的找工日记 |
+小红书 - 你的生活兴趣社区】 � xUhy9buBL1K685y
+� https://www.xiaohongshu.com/discovery/item/685e90da0000000012
+0236f5?source=webshare&amp;xhsshare=pc_web&amp;xsec_token=ABfdeWPfv
+9f3Oh1-7T4WJRZbwlmGSgDz3Wo-
+pUb3ogizk=&amp;xsec_source=pc_share
+
+38 【�� XXXX · 澳洲营销创意体验 - 求职急诊室 | 小红书
+你的生活兴趣社区】 � uGHKHCc4E1AY8vP
+� https://www.xiaohongshu.com/discovery/item/6852540b0000000023
+0010aa?source=webshare&amp;xhsshare=pc_web&amp;xsec_token=ABvb8Ho7
+xajmacpTe9VLo6PbVc5ZHWhZy2mZIGM30cDEo=&amp;xsec_source=pc_s
+hare
 
 澳留子无薪实习暗黑求职季?反杀攻略已到账
 
